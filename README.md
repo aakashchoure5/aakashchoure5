@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aakashchoure5
 - 👀 I’m interested in ... Study
-- 🌱 I’m currently learning ... Sardar Patel Polytechnic College
+- 🌱 I’m currently learning ... Chhindwara University
 - 💞️ I’m looking to collaborate on ... choureaakash5@gmail.com
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
